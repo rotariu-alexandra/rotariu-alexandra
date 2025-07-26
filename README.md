@@ -35,7 +35,7 @@
 
 ## 📫 How to reach me
 - Email: rotariu.alexandra08@gmail.com
-- LinkedIn: [linkedin.com/in/rotariu-alexandra](linkedin.com/in/alexandra-maria-rotariu-b70632261)
+- LinkedIn:[linkedin.com/in/alexandra-maria-rotariu-b70632261](https://www.linkedin.com/in/alexandra-maria-rotariu-b70632261/)
 
 ---
 
